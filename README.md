@@ -1,4 +1,4 @@
-# Modulo2-TyHM-II
+# Modulo 2 - TyHM II
 
 # Taller de Fotografía
 
